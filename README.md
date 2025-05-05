@@ -10,5 +10,3 @@
 - 😄 Pronouns: Natanzinho
 - ⚡ Fun fact: I'm nerd
 -->
-
-![Octo](https://www.maluli.com.br/octopus/design/images/145/products/b/alfinete-seguranca1.jpg)
